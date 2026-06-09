@@ -14,6 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-## uhm idk how to do this bur ok i'll do it later
+<img width="1000" height="289" alt="Image" src="https://github.com/user-attachments/assets/9eee3e4a-e078-44bb-b956-b3f0e78fb333" />
 
-umm pls sign my ata !! https://ruezzkaixx.atabook.org/
+<img width="1880" height="1000" alt="Image" src="https://github.com/user-attachments/assets/3c58ed55-5517-49df-8fe2-3fa85e74067b" />
+
+<p align="center">
+
+
+<p align="center">
+  <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/91b37a67-de13-47ec-bfbb-e8e454b7250d" />
+</p>
+
+<img width="1000" height="289" alt="Image" src="https://github.com/user-attachments/assets/13bcde8e-c9cd-4efc-a4d7-cbc1d08e9f4c" />
