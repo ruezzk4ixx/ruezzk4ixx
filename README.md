@@ -14,4 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-ugh i give up
+im too lazy and have low iq to code but ok
+sign my ata!!
+https://ruezzkaixx.atabook.org/
