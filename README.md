@@ -17,3 +17,5 @@ Here are some ideas to get you started:
 im too lazy and have low iq to code but ok
 sign my ata!!
 https://ruezzkaixx.atabook.org/
+![Visitor Count](https://glitch.me)
+
